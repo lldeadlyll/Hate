@@ -1,1 +1,1 @@
-# Hate
+# Hats
